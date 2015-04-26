@@ -1,0 +1,2 @@
+# rice_-hiroko
+ i was borh 1964/2/27... Stewardess from the time I was born. This is the meaning of Western words.・・箪笥にごんi'm kadomatsu rice hiroko is play name..  i am interested in taking some pictures.and then.i make my mpg using them.you can see it in you tube site. please checked up mieboo31 and aldo luckydidi777,too...in it.or click next.  https://www.youtube.com/user/luckydidi777/feed also this  https://www.youtube.com/user/mieboo31/featured
